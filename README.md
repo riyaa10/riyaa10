@@ -17,9 +17,8 @@ Here are some ideas to get you started:
 -->
 
 - 📫 How to reach me: 
-- linkedin -
-- email -
-- twitter -
+- linkedin -https://www.linkedin.com/in/riya-singh-3b3427210/
+- email -riya23012002singh@gmail.com
 
 </br>
 <p align="center"> 
